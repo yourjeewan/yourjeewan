@@ -5,7 +5,6 @@
 - 👯 I’m looking to collaborate on polyploid analysis, QTL mapping
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
-- 📫 How to reach me: 
+- 📫 How to reach me: yourjeewan@tamu.edu
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: I search for meaning and purpose, even in small things.
--->
